@@ -1,2 +1,0 @@
-# infomre
-Labos profila
